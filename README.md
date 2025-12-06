@@ -17,4 +17,4 @@ Here are some ideas to get you started:
 
 * I'm currently a sophomore studying AI for Business at USC ✌️
 * I'm originally from Pleasanton, CA! Born and raised in the Bay Area 🌁
-* Reach me at kaciehu@usc.edu 
+* Reach me at kaciehu@usc.edu or https://www.linkedin.com/in/kaciehu/
