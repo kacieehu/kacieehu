@@ -14,3 +14,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+* I'm currently a sophomore studying AI for Business at USC ✌️
+* I'm originally from Pleasanton, CA! Born and raised in the Bay Area 🌁
+* Reach me at kaciehu@usc.edu 
